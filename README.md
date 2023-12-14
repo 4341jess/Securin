@@ -11,5 +11,6 @@ Question-3
 ![Screenshot (30)](https://github.com/4341jess/Securin/assets/94750272/97ca6440-81f3-4576-90fb-df2618ae795d)
 PART-B
 
-![Screenshot (31)](https://github.com/4341jess/Securin/assets/94750272/b7ab1433-0ade-4808-b02c-23957b23bb6c)
+![Screenshot (32)](https://github.com/4341jess/Securin/assets/94750272/36e2c46a-5d67-43d6-b0c2-8cbdb9b6eedb)
+
 
